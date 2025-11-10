@@ -1,1 +1,1 @@
-# March-17th-Rentry https://files.catbox.moe/hpv91q.jpg
+Ouauaaa halo i rose IM WORKING ON README AND RENTRY AHH IM LEARNING
